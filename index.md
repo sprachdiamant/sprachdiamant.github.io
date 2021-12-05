@@ -3,18 +3,17 @@
 ---
 
 
+Under construction...
+
 # Sprachdiamant
 Sprachdienstleistungen
 
-## Work in progress
-
 ## Contact
-Sophia Hochholzer
-
-Studentin Übersetzen und Dolmetschen
-
-Englisch - spezialisiert auf Wirtschaft, Recht und Marketingtexte
+Sophia Hochholzer <br>
+Übersetzerin und Dolmetscherin <br>
+Englisch - Deutsch <br>
+spezialisiert afu Wirtschaft, Recht und Marketingtexte
 
 Keltenstraße 10 a <br>
 86916 Kaufering <br>
-sophia.hochholzer@icloud.com <br>
+sophia.hochholzer@icloud.com 
