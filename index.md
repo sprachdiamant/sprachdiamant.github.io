@@ -2,7 +2,7 @@
 
 ---
 
-**Under construction...**
+**Website under construction...**
 
 ## Contact
 Sophia Hochholzer <br>
@@ -12,4 +12,4 @@ spezialisiert auf Wirtschaft, Recht und Marketingtexte
 
 Keltenstraße 10 a <br>
 86916 Kaufering <br>
-sophia.hochholzer@icloud.com 
+sophia@sprachdiamant.com
