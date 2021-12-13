@@ -6,7 +6,8 @@
 
 ## Contact
 Sophia Hochholzer <br>
-Übersetzerin und Dolmetscherin <br>
+Studentin (bis vorr. Juli 2022) <br>
+Übersetzen und Dolmetschen <br>
 Englisch - Deutsch <br>
 spezialisiert auf Rechts- und Marketingtexte
 
