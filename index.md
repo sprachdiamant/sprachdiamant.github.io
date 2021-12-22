@@ -12,4 +12,4 @@ spezialisiert auf Rechts- und Marketingtexte
 
 Keltenstraße 10 a <br>
 86916 Kaufering <br>
-sophia@sprachdiamant.com
+sophia.hochholzer@icloud.com
