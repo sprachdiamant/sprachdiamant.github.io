@@ -5,7 +5,7 @@
 **Website under construction**
 
 ## Contact
-Sophia Hochholzer <br>
+Sophia Morawitz <br>
 Übersetzen und Dolmetschen <br>
 Englisch - Deutsch <br>
 spezialisiert auf Rechts- und Marketingtexte
