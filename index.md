@@ -6,6 +6,7 @@
 
 ## Contact
 Sophia Morawitz <br>
+Studentin <br>
 Übersetzen und Dolmetschen <br>
 Englisch - Deutsch <br>
 spezialisiert auf Rechts- und Marketingtexte
