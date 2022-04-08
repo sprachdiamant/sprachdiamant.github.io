@@ -13,4 +13,4 @@ spezialisiert auf Rechts- und Marketingtexte
 
 Keltenstraße 10 a <br>
 86916 Kaufering <br>
-sophia.hochholzer@icloud.com
+sophia.morawitz@sprachdiamant.com
