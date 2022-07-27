@@ -6,8 +6,8 @@
 
 ## Kontact
 Sophia Morawitz <br>
-staatlich geprüfte Übersetzerin + Dolmetscherin | Texterin <br>
-spezialisiert auf Marketing- und Werbetexte <br>
+staatlich geprüfte Übersetzerin + Dolmetscherin (DE/EN) | Texterin <br>
+spezialisiert auf Recht + Marketing <br>
 
 Keltenstraße 10 a <br>
 86916 Kaufering <br>
