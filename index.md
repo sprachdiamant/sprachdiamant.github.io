@@ -4,8 +4,8 @@
 
 **Website under construction**
 
-## Kontact
-Sophia Morawitz <br>
+## Kontakt
+**Sophia Morawitz** <br>
 staatlich geprüfte Übersetzerin + Dolmetscherin (DE/EN) (Bachelor Professional) | Texterin <br>
 spezialisiert auf Recht + Marketing <br>
 
